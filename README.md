@@ -3,10 +3,10 @@ Luís Augusto 1b cemacs
 
 
 
-- 👋 Hi, I’m @Zel69
+- 👋 Hi, EU
 - 👀 gosto de dar aquela nadada na água
-- 🌱 sempre aprendendo mágicas da vida
-- 💞️ qualquer coisa a gente consegue desenrolar
+- 🌱 sempre indo pra frente, porque pra trás eu tropeço kkkk
+- 💞 qualquer coisa a gente consegue desenrolar
 - 📫 filhinho da mamãe :)
 
 <!---
